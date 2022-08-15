@@ -2,11 +2,16 @@
 HOTEL EXPRESS
 
 #### MANHATTAN >> LAS VEGAS
-MYaccount@hoteltonight.com
 
-Email: bd2561@columbia.edu
+### www.hoteltonight.com
+^ account locked. 
+CONTACT 1: MYaccount@hoteltonight.com
+
+ACCOUNT 1: bd2561@columbia.edu
+ACCOUNT 2: bondstrt007@gmail.com
 
 
+#### LAS VEGAS >> MANHATTAN
 ## WWW.HOTELS.COM
 
 ##### ACCOUNT 1: bdincer66@icloud.com
@@ -20,4 +25,4 @@ Email: bd2561@columbia.edu
 
 *** counselors, 116th & Broadway
 
-New York, NY, 10027
+*** New York, NY, 10027
